@@ -6,3 +6,5 @@ In the high-stakes world of political power-brokers, Elizabeth Sloane is the mos
 * determined
 * ruthless
 * demanding
+
+> Career suicide's not so bad when you consider the alternative is suicide by career.
